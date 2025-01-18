@@ -7,4 +7,5 @@
 
 # My Suggestion 🧑‍🏫
 ### No suggestion as the overall talk is great 
-![Industry Talk](https://Technology_Information_System/assigment_1/insdustry_talk1.jpg)
+
+![Industry Talk](https://lijiatan.github.io/pictures/insdustry_talk1.jpg)
