@@ -5,3 +5,6 @@
 
 # My Suggestion 🧑‍🏫
 ### I hope that this center will be open to students who are qualified for the skills and let them have the opportunity to start with real projects.
+
+![industry visit 2](https://lijiatan.github.io/pictures/industry_visit2/1.png)
+![industry visit 2](https://lijiatan.github.io/pictures/industry_visit2/2.png)
