@@ -1,3 +1,4 @@
+# REFLECTION 😎
 ## The talk with AirAsia ✈️ was an eye opening experience that highlighted the transformative power of digital innovation in modern businesses.
 ## Witnessing how a traditional airline evolved into a dynamic travel and lifestyle platform show the importance of adaptability and continuous learning in staying relevant.
 ## I was inspired by AirAsia's emphasis on fostering an inclusive work culture and its commitment to enhance customer experiences. 
