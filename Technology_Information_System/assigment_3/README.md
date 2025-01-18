@@ -10,3 +10,7 @@
 # My Suggestion 🧑‍🏫
 ### The talk is informative and meaningful, but the speaker tends to shift between topics, which makes it challenging to follow and grasp the main idea of the presentation. 🤯
 ### A clearer focus and smoother transitions between points might help the audience stay engaged and understand the core message better. 
+
+![industry_talk2](https://lijiatan.github.io/pictures/assigment3_industry_talk2/assigment3_1.png)
+![industry_talk2](https://lijiatan.github.io/pictures/assigment3_industry_talk2/assigment3_2.png)
+![industry_talk2](https://lijiatan.github.io/pictures/assigment3_industry_talk2/assigment3_3.png)
