@@ -7,3 +7,4 @@
 
 # My Suggestion 🧑‍🏫
 ### No suggestion as the overall talk is great 
+![Industry Talk](https://Technology_Information_System/assigment_1/insdustry_talk1.jpg)
